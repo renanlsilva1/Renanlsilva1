@@ -2,7 +2,7 @@
 
 Apaixado por música, futebol, basquete, e claro, tecnologia!
 
-Atualmente sou estudante de Análise e Desenvolvimento de Sistemas, e estou totalmente focado em agregar meus conhecimentos para aproveitar a minha primeira oportunidade na área.
+Atualmente sou estudante de Análise e Desenvolvimento de Sistemas, e estou totalmente focado em aprender tudo que puder sobre desenvolvimento.
 
 ## Como me encontrar :mag_right:
 
