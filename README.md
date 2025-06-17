@@ -2,7 +2,7 @@
 
 Apaixado por música, futebol, basquete, e claro, tecnologia!
 
-Atualmente sou estudante de Análise e Desenvolvimento de Sistemas, e estou totalmente focado em aprender tudo que puder sobre desenvolvimento.
+Sou formado em ADM e atualmente sou estudante de Análise e Desenvolvimento de Sistemas, e estou totalmente focado em aprender tudo que puder sobre desenvolvimento de produtos.
 
 ## Como me encontrar :mag_right:
 
